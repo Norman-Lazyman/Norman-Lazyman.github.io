@@ -1,1 +1,0 @@
-# Norman-Lazyman.github.io
